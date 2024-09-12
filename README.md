@@ -2,5 +2,6 @@
 
 您在使用过程中，有任何问题或建议，请提交[issue](https://github.com/zxkletters/xhs_support/issues/new)，或是邮件反馈给我，感谢您的支持～  
 
-![image](https://github.com/user-attachments/assets/28aac8ba-7a05-43c0-8a4f-5a79e418a134)
+联系方式：![image](https://github.com/user-attachments/assets/256d451c-dd13-4a92-aaa9-5c61d1b7f8ff)。
+
 
